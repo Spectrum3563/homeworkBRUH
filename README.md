@@ -1,2 +1,2 @@
-I'll make a new homework repository in future don't worry
-bruh
+I think i'll make branches?
+That's a good idea
